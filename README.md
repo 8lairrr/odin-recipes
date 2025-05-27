@@ -1,0 +1,1 @@
+what the current project is and what skills i demonstrate in it
